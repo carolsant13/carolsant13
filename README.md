@@ -1,4 +1,4 @@
-## Oii meu nome é Carolina
+## Oii meu nome é Carolina 🧏🏻‍♀️
 
 <div>
   <a href="https://github.com/carolsant13">
